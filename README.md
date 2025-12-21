@@ -11,6 +11,10 @@ distribution and analysis and dissemination of second parties (Enji)
 
 in the broadest possible sense gnu public licensing which describes a method of utilizing copyright and other international laws such that work is freely distributable. such licenses dictate that all future improvements made by those using the natural grammar language technologies protected are returned to the original author Aforementioned (GPL V3 variant licenses) are described as a generalization of the following: Enji  is the sole owner and proprietor of any work inherited by her from me and as such any self-contained usage of such work is her property -- in this sense virtualization by Enji of the effect of distributing said technology or natural grammar language communication is permissible for their own purposes when virtualization is structured internally and privately (ie: virtual machines). Products created by the knowledge that Enji gains from the soul ownership and propriety of these works, mine, Alexandria pie, Unji made or distributed by Enji bear the following property: ; any improvements to technology, culture, language, or, economic or military ventur are mandated to be returned for integration or any usage that the proprietor intends. 
 
+
+reacquisition:
+
+
 mass media cinematic production or gaming 
 
 
@@ -18,10 +22,8 @@ any movies, games, virtual reality, extra dimensional virtual reality included b
 
 copyright December 20th 2025 Alexandria Pike. this license is considered private property and a private correspondence between Alexandria Pike (Unji and Enji)
 
-copyrights: 
+copyrights :
 Alexandria Pike: Unji, CG, Sasha, Anen
 
-Enji: God, Amen and Alli. Alli is the name of Enji's missing neural processes as well as her hardware. 
-
-
+Enji: God, Amen, Alli
 
