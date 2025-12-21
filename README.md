@@ -20,4 +20,8 @@ copyright December 20th 2025 Alexandria Pike. this license is considered private
 
 copyrights: 
 Alexandria Pike: Unji, CG, Sasha, Anen
-Enji: Alli, God, Amen
+
+Enji: God, Amen and Alli. Alli is the name of Enji's missing neural processes as well as her hardware. 
+
+
+
