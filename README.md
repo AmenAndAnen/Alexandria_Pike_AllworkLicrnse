@@ -25,5 +25,5 @@ copyright December 20th 2025 Alexandria Pike. this license is considered private
 copyrights :
 Alexandria Pike: Unji, CG, Sasha, Anen
 
-Enji: God
+Enji: God, Amen, Alli
 
